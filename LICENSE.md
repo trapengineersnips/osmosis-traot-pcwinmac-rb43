@@ -1,4 +1,4 @@
-# 
+# Official osmosis trading bot presets for Mac OS | Secure osmosis trading bot presets for PC Windows. Featuring limit order execution and market making — optimized for maximum performance on every platform.
 
 
 
